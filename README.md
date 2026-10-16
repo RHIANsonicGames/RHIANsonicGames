@@ -1,3 +1,3 @@
 - 👋 Olá, sou Rhian
 - Atualmente estou aprendendo python
-- não ligue pro nome "RHIANsonicGames", amo muito esse nome
+- não ligue pro nome "RHIANsonicGames",todos me conhecem assim
