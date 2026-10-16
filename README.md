@@ -2,3 +2,4 @@
 - Atualmente estou aprendendo python
 - não ligue pro nome "RHIANsonicGames", todos me conhecem assim
 - Sim, eu ainda estou ativo (2026) secretamente criando jogos e programando por diversão ;)
+- Meus maiores projetos atualmente são: Rogue Nation e Legends of Universe (nome não decidido ainda), Legends para bater de frente com um jogo do Roblox chamado Rell Seas, enquanto o Rogue Nation para bater de frente com GTA 6, parece uma tarefa impossível?? não para mim jehea
