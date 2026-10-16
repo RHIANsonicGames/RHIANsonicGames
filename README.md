@@ -1,3 +1,4 @@
 - 👋 Olá, sou Rhian
 - Atualmente estou aprendendo python
 - não ligue pro nome "RHIANsonicGames",todos me conhecem assim
+- Sim, eu ainda estou ativo (2026) secretamente criando jogos e programando por diversão ;)
